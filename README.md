@@ -1,2 +1,0 @@
-# IDStreamsFTV
-IDStreams apk
